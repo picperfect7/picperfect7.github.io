@@ -1,3 +1,4 @@
+![Image of DSLR](/assets/main0.jpg)
 ![Image of DSLR](/assets/main1.JPG)
 
 ### If YES, then cast your vote by [following us on Instagram](https://www.instagram.com/pic_perfect_7/?hl=en)
