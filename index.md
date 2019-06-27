@@ -1,3 +1,3 @@
-![Image of DSLR](/assets/main.jpg)
+![Image of DSLR](/assets/main.JPG)
 ![Image of people](/assets/portrait.jpg)
 
